@@ -14,3 +14,5 @@
 ![srcreenshot](6.png)
 
 ![srcreenshot](7.png)
+
+Посмотреть видео: https://youtu.be/ljqw3t-OlMI
